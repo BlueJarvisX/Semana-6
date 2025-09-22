@@ -1,2 +1,2 @@
 # Semana-6
-CLASE 22-09-202
+CLASE 22-09-2025
